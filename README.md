@@ -49,7 +49,7 @@ Explore more on my [GitHub Repositories](https://github.com/HimaCharanChowdary?t
 ## 📫 Connect with Me
 
 - 📧 Email: [jasthi.hima2022@vitstudent.ac.in](mailto:jasthi.hima2022@vitstudent.ac.in)  
-- 💼 LinkedIn: [linkedin](- 💼 LinkedIn: [[linkedin.com/in/chakri-thotakura-321b87277](https://www.linkedin.com/in/chakri-thotakura-321b87277](https://www.linkedin.com/in/hima-charan-chowdary-421696257/))  )  
+- 💼 LinkedIn: [linkedin](https://www.linkedin.com/in/hima-charan-chowdary-421696257/)  
 - 💻 GitHub: [github](https://github.com/HimaCharanChowdary)
 
 ---
